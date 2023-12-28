@@ -1,4 +1,4 @@
-# 💫About Me :
+# 💫Hi, I'm Phuong Quyen :
 I'm currently study at University of Information Technology
 I'm currently learning Computer Science
 
